@@ -1,0 +1,1 @@
+Nicki Minaj è la regina del rap!
